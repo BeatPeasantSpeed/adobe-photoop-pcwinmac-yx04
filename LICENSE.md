@@ -1,4 +1,4 @@
-# 
+# Leve Adobe Photoshop efeitos para Mac OS | Automático Adobe Photoshop efeitos para PC Windows. Com unwrapping UV e camadas de ajuste — otimizado para máximo desempenho em cada plataforma.
 
 
 
